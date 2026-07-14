@@ -1,1 +1,1 @@
-# naval-academy-artificial-intelligence
+# Naval Academy   ------------> artificial intelligence 2025/2026
